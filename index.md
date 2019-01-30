@@ -1,3 +1,5 @@
-# Welcome to my blog
+A crack appears in the rock, you squeeze through and enter. A sign floating mysteriously in mid-air says... 
 
-I'm glad you are here. I plan to talk about ...
+# Welcome to MVKUltra's Cave of Wonders!
+
+Scroll down to explore the cave.
